@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Jotydil.  The new guy- 👀 I’m interested in ..learning to write and languages.
+- 🌱 I’m currently learning ...c++ and also sql and also newer software writing innovations
+- 💞️ I’m looking to collaborate on ...making a documented trial and error student POV tutorial 
+- 📫 How to reach tylerdavidhughes1@gmail.com.....
